@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/1656bbb6-6b58-443b-9d75-bf54ee753029" alt="hanni and freddy" width="600" height="600">
+  <img src="https://file.garden/aJg4yqb6dT5Lk5Zc/Untitled176.jpg" alt="hanni and freddy" width="400" height="400">
 </p>
